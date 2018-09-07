@@ -1,4 +1,4 @@
-##Songs, Poems and Nursery Rhymes -Preschool Fingerplays, Action Poems, Nursery Rhymes and Songs
+
 
 That's what one [hickory dickory dock lyrics](https://www.youtube.com/watch?v=xdcmZy7FpRw) little negative idea can transform into: a tremendous, speeding bundle of offensiveness. Despite what might be expected, a little positive idea can have a similar impact blooming into a wonderful outcome.I'd get a kick out of the chance to impart to you a case of how one little idea can transform into an extremely negative experience.I have lived alone throughout the previous ten years. Clearly, amid this time I've become used to living especially; I have my schedules with cooking, cleaning, and living joyfully in my place.My beau of two years, who I have had a long separation association with, will before long be moving here and we will live respectively. Of late I've had negative considerations of moving in with him realizing that my living routine should change and we should make another routine together Shockingl
 
